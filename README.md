@@ -1,1 +1,0 @@
-# Automatismo-xanela-de-coche21
